@@ -1,0 +1,1 @@
+Online voting system - secure and transparent
